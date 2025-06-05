@@ -16,10 +16,3 @@
 ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎   𓎢𓎟𓎡 He/Him ⠀ ₊◝⠀ 14yrs
   
 ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎    ⟡ 🪷  ⠀ cover npd ⠀ :  ⠀ houski no kuni 1# fan
-
-</p>
-</div>
-<div align="left">
-<img height="60" src="https://files.catbox.moe/op203z.png"
-    />
-</div>
