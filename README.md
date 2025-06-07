@@ -16,3 +16,5 @@
 ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎   𓎢𓎟𓎡 He/Him ⠀ ₊◝⠀ 14yrs
   
 ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎    ⟡ 🪷  ⠀ cover npd ⠀ :  ⠀ houski no kuni 1# fan
+
+guys if i see another person call my genderless rocks girls or lesbians i will actually cry leave leave my 28 nonbinary kids alone 💔
