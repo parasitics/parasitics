@@ -11,7 +11,7 @@
 <p align="left">
 ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ rutile x padparadscha ceo
   
-‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ᰍ𐔌 · ִRowan , Taffy , or Padpa/Padparadscha
+‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ᰍ𐔌 · ִSarah , Taffy , or Padpa/Padparadscha
   
 ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎   𓎢𓎟𓎡 He/Him ⠀ ₊◝⠀ 14yrs
   
