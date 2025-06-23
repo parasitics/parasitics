@@ -15,6 +15,7 @@
   
 ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎   𓎢𓎟𓎡 He/Him ⠀ ₊◝⠀ 14yrs
   
-‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎    ⟡ 🪷  ⠀ cover npd ⠀ :  ⠀ 
+‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎    ⟡ 🪷  ⠀ cover npd ⠀ :  ⠀osdd1b
 
-guys if i see another person call my genderless rocks girls or lesbians i will actually cry leave leave my 28 nonbinary kids alone 💔
+‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ tw 1 of my special interests is okegom
+
