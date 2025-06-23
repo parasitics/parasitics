@@ -1,6 +1,6 @@
 </div>
 <div align="left">
-  <img height="300" src="https://files.catbox.moe/tvd9as.png"
+ ‎ ‎ ‎ ‎ ‎ ‎ ‎‎ ‎ ‎ ‎ ‎ ‎‎ <img height="300" src="https://64.media.tumblr.com/0b575931729ea43f0f271bdda4c35c81/2ea6f145d73d70d2-51/s400x600/80a37981949d3096e2b150a288f7ad4ab6e0604d.pnj"
     />
 </div>
 
@@ -9,12 +9,12 @@
 </p>
 
 <p align="left">
-‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ rutile x padparadscha ceo
+‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ omori fixation go crazi
   
-‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ᰍ𐔌 · ִSarah , Taffy , or Padpa/Padparadscha
+‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ᰍ𐔌 · ִTaffy + Basil 
   
 ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎   𓎢𓎟𓎡 He/Him ⠀ ₊◝⠀ 14yrs
   
-‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎    ⟡ 🪷  ⠀ cover npd ⠀ :  ⠀ houski no kuni 1# fan
+‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎    ⟡ 🪷  ⠀ cover npd ⠀ :  ⠀ 
 
 guys if i see another person call my genderless rocks girls or lesbians i will actually cry leave leave my 28 nonbinary kids alone 💔
