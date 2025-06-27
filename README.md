@@ -17,7 +17,7 @@
   
 ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎    ⟡ 🪷  ⠀ cover npd ⠀ :  ⠀osdd1b
  ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎    
-‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ karms both ruined me and healed me
+‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ karma both ruined me and healed me
 </div>
 <div align="left">
  ‎ ‎ ‎ ‎ ‎ ‎ ‎‎ ‎ ‎ ‎ ‎ ‎‎ <img height="400" src="https://files.catbox.moe/14skiz.png"
