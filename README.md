@@ -17,10 +17,17 @@
   
 ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎    ⟡ 🪷  ⠀ cover npd ⠀ :  ⠀osdd1b
  ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎    
-‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ karma both ruined me and healed me
+‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ GENDICE IS REAL!!!!!!!!!!!!!
 </div>
 <div align="left">
- ‎ ‎ ‎ ‎ ‎ ‎ ‎‎ ‎ ‎ ‎ ‎ ‎‎ <img height="400" src="https://files.catbox.moe/14skiz.png"
+ ‎ ‎ ‎ ‎ ‎ ‎ ‎‎ ‎ ‎ ‎ ‎ ‎‎ <img height="400" src="https://i.pinimg.com/736x/43/bb/04/43bb044ce99210f78e296148c2bdbf5f.jpg"
+    />
+</div>
+
+‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ HIFUDO IS ALSO REAL!!!!!!!!!!!!!
+</div>
+<div align="left">
+ ‎ ‎ ‎ ‎ ‎ ‎ ‎‎ ‎ ‎ ‎ ‎ ‎‎ <img height="400" src="https://i.pinimg.com/736x/d1/26/44/d12644fe5d017deeefd25565d68fa5f0.jpg"
     />
 </div>
 
