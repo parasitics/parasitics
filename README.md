@@ -9,7 +9,7 @@
 </p>
 
 <p align="left">
-‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ apothecary fanatic
+‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ apothecary (diaries) fanatic
   
 ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ᰍ𐔌 · ִTaffy + Matthew 
   
