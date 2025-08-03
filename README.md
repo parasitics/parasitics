@@ -9,7 +9,7 @@
 </p>
 
 <p align="left">
-‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎  adrianne lenker fan
+‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎  adrianne lenker & the smiths fan
   
 ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ᰍ𐔌 · ִTaffy + any other name 
   
